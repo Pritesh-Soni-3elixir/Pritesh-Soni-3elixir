@@ -13,7 +13,7 @@
 ✅ 100% Job Success Rate </br>
 ✅ Wide Range of Skills</br>
 
-![](https://komarev.com/ghpvc/?username=Ramila012)
+![](https://komarev.com/ghpvc/?username=Pritesh-Soni-3elixir)
 
 <h3 align="left">🧮 About me</h3>
 
